@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1WLglg_U0nM-efvn_8oy1-mZCRVtisvkH?usp=drive_link](https://drive.google.com/drive/folders/1WLglg_U0nM-efvn_8oy1-mZCRVtisvkH?usp=drive_link)
 
-- ⚡ Fun fact **My name sounds like 'zero one' in Mandarin, and I was born in 2001**
+- ⚡ Fun fact **my name sounds like 'zero one' in Mandarin, and I was born in 2001**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
