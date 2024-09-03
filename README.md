@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **lynnliau407@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1WLglg_U0nM-efvn_8oy1-mZCRVtisvkH?usp=drive_link](https://drive.google.com/drive/folders/1WLglg_U0nM-efvn_8oy1-mZCRVtisvkH?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1674oEUI0UB1PN_2nbLKzQ61LMv8YJwD6/view?usp=drive_link](https://drive.google.com/file/d/1674oEUI0UB1PN_2nbLKzQ61LMv8YJwD6/view?usp=drive_link)
 
 - ⚡ Fun fact **I was a statistics student**
 
